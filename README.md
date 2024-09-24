@@ -53,6 +53,7 @@ I'm a passionate software developer with a focus on building dynamic, user-frien
 
 - **GitHub**: [Vijay-00001](https://github.com/Vijay-00001)
 - **Email**: [vijay.active.001@gmail.com](mailto:vijay.active.001@gmail.com)
+- **Linkedin**: [Vijay Chauhan](www.linkedin.com/in/vijay-chauhan-88b68932a)
 
 ---
 
