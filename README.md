@@ -68,7 +68,7 @@ Visit my repositories: [**Vijay-00001**](https://github.com/Vijay-00001)
 ## 📫 Connect With Me
 
 - **GitHub:** [Vijay-00001](https://github.com/Vijay-00001)
-- **Email:** [vijay.active.001@gmail.com](mailto:vijay.active.001@gmail.com)
+- **Email:** [vijay.active.001@gmail.com](mailto:vijay.active.001@gmail.com)/[vmchauhan46246@gmail.com](mailto:vmchauhan46246@gmail.com)
 
 ---
 
